@@ -10,3 +10,7 @@ The story is set in an alternate future where the Holy Britannian Empire has con
 
 The series is known for its intricate and often morally ambiguous plot, exploring themes of power, rebellion, and the consequences of one's actions. The strategic battles and political intrigue are central to the narrative, making "Code Geass" a thrilling and intellectually stimulating experience.
 
+### Added Info 
+## Legacy
+
+"Code Geass" has achieved classic status in the mecha and psychological thriller genres. It received critical acclaim for its gripping storyline, well-developed characters, and unexpected twists that captivated viewers. The conclusion of the first season and its sequel, "Code Geass: Lelouch of the Rebellion R2," are particularly noteworthy for their emotional impact and resolution of the complex narrative.
